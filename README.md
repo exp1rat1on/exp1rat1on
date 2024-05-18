@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @exp1rat1on
-- 👀 I’m interested in ... Music
+- 👀 I’m interested in ... Music and learning how to hack
 - 🌱 I’m currently learning ...school
 - 💞️ I’m looking to collaborate on ...idk
 - 📫 How to reach me ...gmail or discord or IDK
